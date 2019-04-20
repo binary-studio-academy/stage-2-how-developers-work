@@ -1,5 +1,3 @@
-https://edition.cnn.com/2013/07/04/us/donald-trump-fast-facts/index.html
-
 ### DONALD TRUMP
 * https://www.fb.com/DonaldTrump
 * realDonaldTrump@whitehouse.gov
